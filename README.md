@@ -1,1 +1,0 @@
-SustainableSmart City assistant 
